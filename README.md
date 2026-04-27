@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LILE770428MVZNNS05
+LILE770428MVZNNS05
